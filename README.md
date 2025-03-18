@@ -1,1 +1,0 @@
-# InternIntelligence_logodesign
